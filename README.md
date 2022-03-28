@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Nuzluk
+- 👀 I’m interested in video games and learning coding.
+- 🌱 I’m currently learning basic code, and modding.
+- 💞️ I’m not currently looking for any collaborations.
+- 📫 How to reach me: Nuzlocke#4300 on discord
